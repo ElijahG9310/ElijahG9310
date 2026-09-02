@@ -22,6 +22,7 @@ Email: elijahgahan07@gmail.com
 
 Phone: (402)-870-2765
 
+LinkedIn: www.linkedin.com/in/elijah-gahan-6990a6433
 ### 🌱Good Quotes
 
 Don't put off until tomorrow what can be done today
